@@ -1,1 +1,0 @@
-# ayhangokhan.github.io
